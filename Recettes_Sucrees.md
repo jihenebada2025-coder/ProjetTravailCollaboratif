@@ -22,25 +22,6 @@
 
 ---
 
-## Gâteau au Yaourt
-
-*Ingrédients :*
-
-* 1 pot de yaourt nature
-* 2 pots de sucre
-* 3 pots de farine
-* 1/2 pot d’huile
-* 3 œufs
-* 1 sachet de levure
-
-*Préparation :*
-
-1. Préchauffer le four à 180°C.
-2. Mélanger tous les ingrédients dans un saladier.
-3. Verser dans un moule beurré.
-4. Cuire 30 à 35 minutes.
-
----
 
 ## Muffins aux Pépites de Chocolat
 
