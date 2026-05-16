@@ -75,7 +75,7 @@
 2. Couper les pommes de terre en fines rondelles.
 3. Frotter le plat avec l’ail, disposer les pommes de terre.
 4. Verser la crème, assaisonner, ajouter le fromage.
-5. Cuire 45 minutes jusqu’à gratiner.
+5. Cuire  pour 45 minutes jusqu’à gratiner.
 
 ---
 
